@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ennsta or Nathan Richardsson
+- 👀 I’m interested in people, game development, innovation, web3, and world peace. 
+- 🌱 I’m currently learning life, and world domination. 
+- 💞️ I’m looking to collaborate on something something meta web3 verse thing
+- 📫 You can reach me at gmail.com or @ennstamatic
